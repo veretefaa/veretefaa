@@ -4,7 +4,7 @@ sd- 👋 Hi, I’m @veretefaa
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...456
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...465252sfd
+- ⚡ Fun fact: ...465252sfddf
 sdsd
 <!---dfdfgdfsd
 veretefaa/veretefaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
