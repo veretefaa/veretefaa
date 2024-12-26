@@ -4,7 +4,7 @@ sd- 👋 Hi, I’m @veretefaa
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...456
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...465252sfddf
+- ⚡ Fun fact: ...465252sfddfsdfsdf
 sdsdsdfsdfsdf
 <!---dfdfgdfsd66
 veretefaa/veretefaa is a ✨ special ✨ repository because its `README.md` (t456his file) appears on your GitHub profile.
