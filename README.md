@@ -1,7 +1,7 @@
 fsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...erter
+- 💞️ I’m looking to collaborate on ...erterhjg
 - 📫 How to reach me ...456gfgzaza
 - 😄 Pronouns: ...weefd
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssq
