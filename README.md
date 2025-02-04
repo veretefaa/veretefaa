@@ -3,7 +3,7 @@ fsd- 👋 Hi, I’m @veretefaa999
 - 🌱 I’m currently learning ...ger
 - 💞️ I’m looking to collaborate on ...erterhjgjuym
 - 📫 How to reach me ...456gfgzaza
-- 😄 Pronouns: ...weefd
+- 😄 Pronouns: ...weefdgf
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssq
 sdsdsdfsdfsdfsdfsdfgr
 <!---dfdfgdfsd66dgj26132
