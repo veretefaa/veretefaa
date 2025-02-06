@@ -1,7 +1,7 @@
-fsd- 👋 Hi, I’m @veretefaa999
+rtgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ger
-- 💞️ I’m looking to collaborate on ...erterhjgjuym
+- 💞️ I’m looking to collaborate on ...erterhjgjuymrgt
 - 📫 How to reach me ...456gfgzaza
 - 😄 Pronouns: ...weefdgf
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgngh
