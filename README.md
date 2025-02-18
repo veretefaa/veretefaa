@@ -1,7 +1,7 @@
 rtgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ger
-- 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnch
+- 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrf
 - 😄 Pronouns: ...weefdgf
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgngh
 sdsdsdfsdfsdfsdfsdfgr
