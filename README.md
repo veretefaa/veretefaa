@@ -3,7 +3,7 @@ rtgfsd- 👋 Hi, I’m @veretefaa999
 - 🌱 I’m currently learning ...ger
 - 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtr
 - 😄 Pronouns: ...weefdgf
-- ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgnghasddasdsa
+- ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgnghasddasdsafdsf
 sdsdsdfsdfsdfsdfsdfgrgbfdfdsdgerdjgrsd
 <!---dfdfgdfsd66dgj26132grrgfsfddshgnhgdbggdffdsaasfvb
 veretefaa/veretefaa is a ✨ special ✨ repository because its `README.md3545` (t456his file) appears on your GitHub profile.aws
