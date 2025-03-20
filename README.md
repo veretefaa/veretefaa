@@ -1,4 +1,4 @@
-rtgfsd- 👋 Hi, I’m @veretefaa999
+fwewfertgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ger
 - 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtr
