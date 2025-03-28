@@ -2,7 +2,7 @@ fwewfertgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ger
 - 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtrdasdasbvvb
-- 😄 Pronouns: ...weefdgf
+- 😄 Pronouns: ...weefdgf525
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgnghasddasdsafdsf
 sdsdsdfsdfsdfsdfsdfgrgbfdfdsdgerdjgrsd
 <!---dfdfgdfsd66dgj26132grrgfsfddshgnhgdbggdffdsaasfvb
