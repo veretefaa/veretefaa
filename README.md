@@ -1,6 +1,6 @@
 fwewfertgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...ger
+- 🌱 I’m currently learning ...gercassaccas
 - 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtrdasdasbvvb
 - 😄 Pronouns: ...weefdgf525
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgnghasddasdsafdsf
