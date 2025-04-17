@@ -1,4 +1,4 @@
-sdvdsfwewfertgfsd- 👋 Hi, I’m @veretefaa999
+dsfsfddsdvdsfwewfertgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...gercassacca
 - 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtrdasdasbvvb,jj
