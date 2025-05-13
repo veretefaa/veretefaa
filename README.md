@@ -1,4 +1,4 @@
-dfвdsfsfddsdvdsfwewfertgfsd- 👋 Hi, I’m @veretefaa999
+,udfвdsfsfddsdvdsfwewfertgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...gercassaccasdfdsasmhd4yy45rr
 - 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtrdasdasbvvb,jjregrger
@@ -10,4 +10,4 @@ You can click the Preview link to take a look at your changes.4gsbfdvcvbcvdfswqq
 --->fdshyeefjm
 5354354dsf
 mbnvdfgfgrdgfbgfb
-sdfdfsdfs
+sdfdfsdfsiu,ijh
