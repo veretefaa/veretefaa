@@ -1,7 +1,7 @@
 yjryrjjrydgfdgfgdf,udfвdsfsfddsdvdsfwewfertgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...gercassaccasdfdsasmhd4yy45rrfghfg
-- 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtrdasdasbvvb,jjregrgerndffd
+- 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtrdasdasbvvb,jjregrgerndffdrewrewrwe
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgnghasddasdsafdsfhtrапавzasztrdbbdfbdfbdfdykuykuksfddsffdsfersdds
 sdsdsdfsdfsdfsdfsdfgrgbfdfdsdgerdjgrsdhmffh5geegfeefe622626
 <!---dfdfgdfsd66dgj26132grrgfsfddshgnhgdbggdffdsaasfvb15562dgfdgfcbcvcvcgergregreegrfsfsfdf
