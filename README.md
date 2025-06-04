@@ -1,6 +1,6 @@
 yjryrjjrydgfdgfgdf,udfвdsfsfddsdvdsfwewfertgfsd- 👋 Hi, I’m @veretefaa999
 - 👀 I’m interested in ...yjgjyhhb
-- 🌱 I’m currently learning ...gercassaccasdfdsasmhd4yy45rrfghfg
+- 🌱 I’m currently learning ...gercassaccasdfdsasmhd4yy45rrfghfggerherher
 - 💞️ I’m looking to collaborate on ...erterhjgjuymrgt26jfhdtdfdddnchrefrffdv rtrdasdasbvvb,jjregrgerndffdrewrewrhffdhfjytytj
 - ⚡ Fun fact: ...465252sfddfsdfsdfgbqwssqhgnghasddasdsafdsfhtrапавzasztrdbbdfbdfbdfdykuykuksfddsffdsfersdds
 sdsdsdfsdfsdfsdfsdfgrgbfdfdsdgerdjgrsdhmffh5geegfeefe622626
